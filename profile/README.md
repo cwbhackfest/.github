@@ -1,5 +1,8 @@
 # 1ᵃ CWB HACK FEST
 
+> O evento flopou!!!
+> O formulário vai ficar aberto para coletar interessados em tentar novamente no futuro.
+
 Preencha o formulário caso tenha interesse no evento: https://forms.gle/JKPt9h4hxMf2EAUq7
 
 ## O que é?
